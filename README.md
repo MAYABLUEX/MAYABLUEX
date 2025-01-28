@@ -1,5 +1,6 @@
-### MAYA/BLUE.X XRP COMIC BOOK/MANGA ONLINE STORE FRONT 👋
-
+### MAYA/BLUE.X WHERE VISIONZ<R>QUANTUM/REALITY
+XPR+XRP+MAYA👋
+🌱 I’m currently learning EVERYTHING...
 <!--
 **MAYABLUEX/MAYABLUEX** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
